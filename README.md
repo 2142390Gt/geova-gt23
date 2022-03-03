@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Geovani user/ 2142390Gt
+- 👋 Hi, I’m Geovani user/ geova-gt23
 - 👀 I’m interested in, todo lo que es programacion.
 - 🌱 I’m currently learning, programacion y desarrollo de sofware.
 - 💞️ I’m looking to collaborate on culquier proyecto en el cual mnevcesiten ayuda, y tambien si yo tengo conocimiento del mismo.
